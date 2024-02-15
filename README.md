@@ -4,7 +4,7 @@ Dutch
 
 4th july, 2003 
 
-Coding very part time, as I major in medicine (currently M2)
+Coding very recently, as I major in medicine (currently M2)
 
 Mainly learning the funnie coffee cup language 
 
