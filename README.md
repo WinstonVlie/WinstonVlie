@@ -4,12 +4,11 @@ Dutch
 
 4th july, 2003 
 
-Coding very recently, as I major in medicine (currently M2)
+Coding very recently, as I major in medicine (currently M3)
 
-Mainly learning the funnie coffee cup language 
+Mainly trying to learn the funnie coffee cup language 
 
-Idk in my free time I mostly game video's such as TF2, WoW, DRG, modded Minecraft (phases) 
-or I like to walk, pick a lock, spin a balisong 
+Idk in my free time I mostly game video's such as TF2, WoW, DRG, modded Minecraft (phases)
 
 <!---
 WinstonVlie/WinstonVlie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
